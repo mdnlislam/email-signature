@@ -20,6 +20,11 @@ https://i.postimg.cc/Z5kCp5Pb/8168642-browser-web-internet-network-icon.png
 picture man
 https://i.postimg.cc/wTqXkQW4/KE-Upward-Spiral-headshot-300x300-1.png
 https://i.postimg.cc/P52sTDtd/354873716-606127011649331-1303950734809081250-n.png
+https://i.postimg.cc/nhTBQqxC/IMG-20221114-114046.jpg
 
 logo
 https://i.postimg.cc/NMbZJM6M/Spotify-logo-with-text-svg.png
+https://i.postimg.cc/dV7Y3Qnb/istockphoto-1208886786-2048x2048.png
+
+line
+https://i.postimg.cc/xC57gBtG/New-Project.png
